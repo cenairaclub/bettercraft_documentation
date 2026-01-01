@@ -1,0 +1,1 @@
+# bettercraft_documentation
